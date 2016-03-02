@@ -18,11 +18,11 @@
 
 * The Null Party represents its voters and non voters everywhyere.
 
-* We propose that all tax payers get a reciept for paying taxes broken down into understandable sections to show how the money is spent
+* The Null Party proposes that all tax payers get a reciept for paying taxes broken down into understandable sections to show how the money is spent
 
-* It aims to provide financial transparency for tax payers, in order to help identify non essential and wasteful services.  
+* The Null Party aims to provide financial transparency for tax payers, in order to help identify non essential and wasteful services.  
 
-* It campagns to allow tax payers to opt out of funding such programs while continuing to fund all the programs that are deemed necessary to realize a functioning democracy.
+* The Null Party campagns to allow tax payers to opt out of funding such programs while continuing to fund all the programs that are deemed necessary to realize a functioning democracy.
 
 ## Share
 

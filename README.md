@@ -28,6 +28,8 @@
 
 If you agree with our aims please share this link, star it, and help it to go viral.
 
+Together, lets make a better democracy!
+
 Thanks
 
 ∅

@@ -8,13 +8,13 @@
 
 * The Null Party is not a protest vote, it supports all forms of democratic government, parites and systems.
 
+* The Null Party represents its voters and non voters everywhyere.
+
 ## Goals
 
 * The Null party has one, and only one goal:
 
         To promote financial transparency leading to financial democracy.
-
-* The Null Party represents its voters and non voters everywhyere.
 
 ## Advocacy
 

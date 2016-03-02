@@ -16,7 +16,9 @@
 
 ## Advocacy
 
-* The Null Party represents its voters and non voters everywhyere.  
+* The Null Party represents its voters and non voters everywhyere.
+
+* We propose that all tax payers get a reciept for paying taxes broken down into understandable sections to show how the money is spent
 
 * It aims to provide financial transparency for tax payers, in order to help identify non essential and wasteful services.  
 

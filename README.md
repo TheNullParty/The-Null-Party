@@ -14,9 +14,9 @@
 
         To promote financial transparency leading to financial democracy.
 
-## Advocacy
-
 * The Null Party represents its voters and non voters everywhyere.
+
+## Advocacy
 
 * The Null Party proposes that all tax payers get a reciept for paying taxes broken down into understandable sections to show how the money is spent.
 

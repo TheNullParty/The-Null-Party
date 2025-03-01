@@ -6,7 +6,7 @@
 
 * The Null Party is an apolitical organization.
 
-* The Null Party is not a protest vote, it supports all forms of democratic government, parites and systems.
+* The Null Party is not a protest vote, it supports all forms of democratic government, parties and systems.
 
 * The Null Party represents its voters and non voters everywhyere.
 
